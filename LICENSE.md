@@ -1,4 +1,4 @@
-#  
+#  Experience escape running head like never before with stealth Script for escape running head, the #1 Script. Includes speed and anti-ban for
 
 
 
